@@ -1,4 +1,4 @@
-# Ingredients requred :
+# Ingredients required :
 
 ### 2 cups               sugar
 ### 1-3/4 cups           all purpse flour
